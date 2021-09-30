@@ -1,0 +1,4 @@
+# TUGAS_6
+Nur Ifawati Arfan
+200209502041
+PTIKC2020
